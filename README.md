@@ -1,1 +1,0 @@
-# SampleLatLongARxwc6d
